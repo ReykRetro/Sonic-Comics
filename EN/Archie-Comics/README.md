@@ -9,9 +9,13 @@ NOTE 2: It's necessary you read all comics in order because at any moment can be
 
 
 ->Sonic Mini-Series/Sonic Limited Series<-
+
 Sonic Mini-Series #0
+
 Sonic Mini-Series #1
+
 Sonic Mini-Series #2
+
 Sonic Mini-Series #3
 
 ->Sonic The Hedgehog (Main Series)<-
