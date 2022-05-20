@@ -1,9 +1,9 @@
 --------------------------------------
 --->Archie Comics Recommened Order<---
 --------------------------------------
-I read the comics with the next order for now.;
-NOTE 1: If I'm wrong in the order please let me know.;
-NOTE 2: It's necessary you read all comics in order because at any moment can be mentioned.;
+I read the comics with the next order for now.
+NOTE 1: If I'm wrong in the order please let me know.
+NOTE 2: It's necessary you read all comics in order because at any moment can be mentioned.
 
 
 ->Sonic Mini-Series/Sonic Limited Series<-
